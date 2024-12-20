@@ -527,6 +527,7 @@ C妹觉得我一年出不了15本书，我说C妹缺乏想象力。
 
 For the sack of history I need a Harvard PhD, honored or not honored. I prefer not honored first. 
 
+看得开心的话，记得点个星，或者在亚马逊上面支持一本！ 
 
-
+<img width="1591" alt="截屏2024-12-20 10 10 24" src="https://github.com/user-attachments/assets/d45cf855-4205-4ed8-8db4-a9f8ae3bbc44" />
 
